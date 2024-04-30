@@ -8,7 +8,6 @@ Gold has always held a prominent place in the country’s economy and among the 
 
 Gold prices have historically skyrocketed, peaking at $ 1,800 in 2020. These swings that gold has faced can be attributed to several events that occurred during the period. Stock prices are strongly correlated with public information and world events, and gold is no exception.
 
-Also, Read – 100+ Machine Learning Projects Solved and Explained.
 
 Unlike other financial assets, precious metals behave positively in times of crisis. Indeed, in the face of events such as epidemics, wars and economic disruption, most assets experience a decline in their value. However, in search of cover, investors are turning their attention to gold. As a result, the demand for yellow metal increases, resulting in a rise in the market valuation.
 
